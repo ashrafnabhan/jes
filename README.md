@@ -1,1 +1,1 @@
-# jes
+# Journal of Evidence Synthesis
