@@ -1,1 +1,0 @@
-# Journal of Evidence Synthesis
